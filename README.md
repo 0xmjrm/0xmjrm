@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @0xmjrm
 - 👀 I’m interested into nfts so hard
-- 🌱 I’m currently learning crupto
+- 🌱 I’m currently learning crypto 
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me ...
 
